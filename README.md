@@ -1,1 +1,0 @@
-# transmisi-n-de-datos
